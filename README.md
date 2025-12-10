@@ -3,7 +3,8 @@
 
 <img width="50" height="100" alt="tumblr_d315972c0ddc611b4760cbdba5f9b881_efd6f1e3_2048" src="https://github.com/user-attachments/assets/3f26030f-5897-41ba-9070-92f9e2883e25" /> ![tumblr_53063c2d6039ffe68f14ebdd9ce0ca9f_a0e05746_75](https://github.com/user-attachments/assets/4c47ee91-ab51-4d61-8b46-3e2e46a9b792)  "𝓘'𝓜 𝓐 𝓕𝓤𝓒𝓚𝓘𝓝𝓖 𝓖𝓞𝓓!"
  
-![tumblr_8bb7e7866332aa69b7c5a68b3295d834_d7d8561a_1280](https://github.com/user-attachments/assets/bbc45fac-34af-4ab3-9b25-ba25092fff37)
+![tumblr_511207b37ad75ca3e9592df2e354171f_511b5ecb_1280](https://github.com/user-attachments/assets/cf816807-e4a2-45b4-a7b8-477515e29001)
+
 
 
  <a href="https://undeadsavior.atabook.org/" target="_blank">𝔞𝔱𝔞</a> <a href="https://barbedwiree.straw.page/" target="_blank">𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢</a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘</a>
