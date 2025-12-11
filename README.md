@@ -7,7 +7,7 @@
 
 
 
- <a href="https://undeadsavior.atabook.org/" target="_blank">𝔞𝔱𝔞</a> <a href="https://barbedwiree.straw.page/" target="_blank">𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢</a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘</a>
+ <a href="https://undeadsavior.atabook.org/" target="_blank">𝔞𝔱𝔞</a> <a href="[https://v0xt3kk.straw.page/" target="_blank">𝔰𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢</a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘</a>
 
 ![tumblr_ee07fbf05f19bbf862cb5acf200bd01f_6a2b74ea_100](https://github.com/user-attachments/assets/5fac0393-1032-433c-90e8-01d867446abd)
 <img width="99" height="56" alt="tumblr_df4f194c01d12c8a9ad89b3d1bd6de14_7c8d85fe_100" src="https://github.com/user-attachments/assets/b4172d6d-0cd5-42a8-8dbd-b5cc622e6497" /><img width="100" height="126" alt="tumblr_4f268352449264a0c86caff22323ad46_e9f12844_250" src="https://github.com/user-attachments/assets/6f3cc69e-99cb-425a-baf5-70d05675f540" />![tumblr_d1e660f88c960f8e773fe5766413941b_5c0bfbc2_100](https://github.com/user-attachments/assets/cdd63f11-8b7c-43c7-874f-68bf55365553)
