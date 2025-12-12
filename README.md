@@ -16,7 +16,7 @@
 ![tumblr_1ba04d4cd67464d732642fdfd5ad7792_0454fbe3_250](https://github.com/user-attachments/assets/93aa0043-ebe0-437e-83a6-531e6ccc1ffc)
 ![tumblr_3c8abc94f4d7308c87d0f946d0f261c1_ee3bf89e_250](https://github.com/user-attachments/assets/b8faf504-06f1-4427-aa69-7bd3331cfadc)
 
- 
+ rp is allowed when I'm alone, preferably ^_^
 
 
 
