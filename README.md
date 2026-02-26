@@ -1,8 +1,8 @@
 
 
-<p align="center"> <img width="500" height="500" alt="IMG_0988" src="https://github.com/user-attachments/assets/37d0179a-0381-4487-946d-c9bd637854d4" />‎ ‎ ‎ 
+<p align="center"> <img width="406" height="348" alt="chieebees" src="https://github.com/user-attachments/assets/352d251d-a2c0-4036-84d5-41ea303b1998" />
 
-![ezgif-3caa82cbdc0904ac](https://github.com/user-attachments/assets/304451ed-ff43-44fe-9a41-aabc5ab08652)
+
 
 
 
