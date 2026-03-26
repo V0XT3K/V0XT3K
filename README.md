@@ -6,7 +6,7 @@
 
 
 
-<p align="center">  ‹𝟹 <a href="https://statickitty.atabook.org" target="_blank">𝗔𝗧𝗔𝗕𝗢𝗢𝗞</a>  ~       <a href="https://v0xt3kk.straw.page/" target="_blank">𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘</a> ‎~ </a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗦</a>
+<p align="center">  ‹𝟹 <a href="statickitties.atabook.org" target="_blank">𝗔𝗧𝗔𝗕𝗢𝗢𝗞</a>  ~       <a href="https://v0xt3kk.straw.page/" target="_blank">𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘</a> ‎~ </a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗦</a>
 
 ![tumblr_6d8e3bbb6c2f67bb673a2014a8941bab_bb9f1785_250](https://github.com/user-attachments/assets/3c484bb3-6fb6-470d-b97a-3ad515916763)
 ![tumblr_ee07fbf05f19bbf862cb5acf200bd01f_6a2b74ea_100](https://github.com/user-attachments/assets/5fac0393-1032-433c-90e8-01d867446abd)
