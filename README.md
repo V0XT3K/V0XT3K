@@ -22,7 +22,7 @@
 
 
 
-stamps and stickers by zresp and vampireaxel and doushitemacaron,  me8t, and sharkstabbie on tumblr^.^ 
+stamps and stickers by zresp and vampireaxel and doushitemacaron, and crufifyd on tumblr>_<
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=316hhcg2axzhkmiogqhbddaacaye&cover_image=true&theme=novatorem&show_offline=true&background_color=6c008a&interchange=false&profanity=false&bar_color=000000&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=316hhcg2axzhkmiogqhbddaacaye&redirect=true)
 
