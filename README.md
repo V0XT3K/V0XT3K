@@ -9,13 +9,9 @@
 <p align="center">  ‹𝟹 <a href="https://statickitties.atabook.org" target="_blank">𝗔𝗧𝗔𝗕𝗢𝗢𝗞</a>  ~       <a href="https://v0xt3kk.straw.page/" target="_blank">𝗦𝗧𝗥𝗔𝗪𝗣𝗔𝗚𝗘</a> ‎~ </a> <a href="https://en.pronouns.page/@ghostonzaza" target="_blank">𝗣𝗥𝗢𝗡𝗢𝗨𝗡𝗦</a>
 
 
-![tumblr_ee07fbf05f19bbf862cb5acf200bd01f_6a2b74ea_100](https://github.com/user-attachments/assets/5fac0393-1032-433c-90e8-01d867446abd)
- ![tumblr_d1e660f88c960f8e773fe5766413941b_5c0bfbc2_100](https://github.com/user-attachments/assets/cdd63f11-8b7c-43c7-874f-68bf55365553)
-![tumblr_39db65d5a5c3aa7b3d8d4d85f8fc1273_17613879_100](https://github.com/user-attachments/assets/d41def41-b5d6-4401-899c-4735bd235821)
-![tumblr_d3f3d14b5262bec1fe6d7b48d3957b58_2437e8d7_250](https://github.com/user-attachments/assets/b981d5b7-7663-47fd-b4e7-ffbe9fe8c93b)
-![tumblr_1ba04d4cd67464d732642fdfd5ad7792_0454fbe3_250](https://github.com/user-attachments/assets/93aa0043-ebe0-437e-83a6-531e6ccc1ffc)
-<img width="100" height="90" alt="tumblr_a5b730d729d35de5a0cb61cdedc6ae0a_d63a60e3_2048" src="https://github.com/user-attachments/assets/082067fa-a72d-45ae-b1d1-dd2bf5987dc6" />
+![tumblr_1ba04d4cd67464d732642fdfd5ad7792_0454fbe3_250](https://github.com/user-attachments/assets/93aa0043-ebe0-437e-83a6-531e6ccc1ffc)<img width="100" height="56" alt="tumblr_a5b730d729d35de5a0cb61cdedc6ae0a_d63a60e3_2048" src="https://github.com/user-attachments/assets/082067fa-a72d-45ae-b1d1-dd2bf5987dc6" />
 ![tumblr_7011c3866bdbfa2b1a7eb9b51c828c57_f05174e1_100](https://github.com/user-attachments/assets/3d745cf2-f70d-469d-84b1-52f30c5a34cf)
+<img width="100" height="56" alt="tumblr_5990eccbc94084bdf453aef3f9151296_18f9b17b_100" src="https://github.com/user-attachments/assets/4abf2488-35ad-4983-9b56-98870a3f59d0" /><img width="100" height="56" alt="tumblr_a832374040a43535dadbc1069d566c70_9e67677e_2048" src="https://github.com/user-attachments/assets/d49a8bab-435f-4f0a-9c5d-5cda8317139c" />![tumblr_ee07fbf05f19bbf862cb5acf200bd01f_6a2b74ea_100](https://github.com/user-attachments/assets/5fac0393-1032-433c-90e8-01d867446abd)![tumblr_d1e660f88c960f8e773fe5766413941b_5c0bfbc2_100](https://github.com/user-attachments/assets/cdd63f11-8b7c-43c7-874f-68bf55365553)![tumblr_39db65d5a5c3aa7b3d8d4d85f8fc1273_17613879_100](https://github.com/user-attachments/assets/d41def41-b5d6-4401-899c-4735bd235821)![tumblr_d3f3d14b5262bec1fe6d7b48d3957b58_2437e8d7_250](https://github.com/user-attachments/assets/b981d5b7-7663-47fd-b4e7-ffbe9fe8c93b)!
 
 
 
